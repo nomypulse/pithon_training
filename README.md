@@ -1,1 +1,1 @@
-# pithon_training
+# pithon_training_maza_fukka
